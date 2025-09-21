@@ -1,6 +1,6 @@
 <img src="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293" alt="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293">
 
-Hi! Ty for visting my page! I don't really have much here QuQ I only just started playing PT, so feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier drawing, reading, and stalking from the sidelines unknowingly hehe. My only ask that I can think of rn is to NOT chat with me if you under 14
+Hi! Ty for visting my page! I don't really have much here QuQ I only just started playing PT, so feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier drawing, reading, and stalking from the sidelines unknowingly. My only ask that I can think of rn is to NOT chat with me if you under 14
 
 ### Currently playing:
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true)
