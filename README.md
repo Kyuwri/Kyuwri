@@ -1,6 +1,6 @@
 <img src="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293" alt="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293">
 
-Hi! Ty for visting my page! I don't really have much here QuQ I only just started playing PT, so feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier drawing, reading, and stalking from the sidelines unknowingly.
+Hi! Ty for visting my page! I don't really have much here QuQ I only just started playing PT, so feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly.
 
 Some notes ig: I don't RP at all, and do NOT chat with me if you under 14.
 
