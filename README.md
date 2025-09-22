@@ -2,7 +2,7 @@
 
 🍕Hi! Ty for visting my page! I don't really have much here QuQ I only just started playing PT, so feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly. 
 
-‼️Some notes ig: I don't RP at all, and do NOT chat with me if you under 14.
+‼️Some notes ig: I don't RP at all, I'm very shy I have spent many years not talking to people, so I apologise if I don't type much I'm more a VCer T_T
 
 ### Currently playing:
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true)
