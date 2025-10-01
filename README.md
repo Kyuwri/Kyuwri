@@ -4,6 +4,8 @@
 
 ‼️ Some notes ig: I don't RP at all. I'm not interested in shipping on PT, don't act like a ship while interacting with me. Lastly, Do NOT chat with me if under 14.
 
+I'll probably just be following people I chat to or if I like your ponies ^^
+
 ### Currently playing:
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true)
 
