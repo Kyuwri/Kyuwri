@@ -1,10 +1,11 @@
 <img src="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293" alt="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293">
 
-🍿 Hi! Ty for visting my page! I don't really have much here QuQ I only just started playing PT, so feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly. I apologise if I don't type much I'm very quiet and also much more a VCer TuT
+🍿 Hi! Ty for visting my page! I don't really have much here QuQ Feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly. I apologise if I don't type much I tend to be quite quiet
 
-‼️ Some notes ig: I don't RP at all. I'm not interested in shipping on PT, don't act like a ship while interacting with me. Lastly, Do NOT chat with me if under 14.
+‼️ Some notes ig: I don't RP at all. I'm not too interested in shipping on PT, don't act like a ship while interacting with me. Lastly, don't chat with me under 14 
 
-I really enjoy seeing all the ponies, espesially all the other TADC ones, so I haven't blocked anypony atm. Though, I'm not afraid to hide for a short while
+If you're down and bored enough, I will every now and then have a Magma canvas opened linked on my Strawpage, so feel free to add literally anything to it ^o^
+
 
 ### Currently playing:
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true)
