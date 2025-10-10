@@ -4,8 +4,6 @@
 
 ‼️ Some notes ig: I don't RP at all. I'm not too interested in shipping on PT, don't act like a ship while interacting with me (I'm a massive shipper though! I love Showtime and Funnybunny). Lastly, DON'T friend or INT with me under 14.
 
-If you're down and bored enough, I will every now and then have a Magma canvas opened linked on my Strawpage, so feel free to add literally anything to it ^o^
-
 
 ### Currently playing:
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true)
