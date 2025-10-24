@@ -2,7 +2,7 @@
 
 🍿 Hi! Ty for visting my page! I don't really have much here QuQ Feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-afk ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly. I apologise if I don't type much I tend to be quite quiet
 
-‼️ Some notes ig: I don't RP at all. I'm not too interested in acting like a ship in PT, don't act like a ship while interacting with me unless I give you permission. Lastly, DON'T INT with me under 14.
+‼️ Some notes ig: I don't RP at all. I'm not too interested in acting like a ship in PT, don't act like a ship while interacting with me unless I give you permission
 
 
 ### Currently playing:
