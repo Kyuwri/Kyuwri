@@ -2,7 +2,7 @@
 
 🍿 Hi! Ty for visting my page! You can call me Kyu, Dirt, Kiwi, or whatever you want. I don't really have much here QuQ Feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-offtab ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly. I apologise if I don't type much I tend to be quite quiet, we just be chilling fr.
 
-‼️ Some notes ig: I don't RP at all, get too worried about what to say. As well as, I'm not too interested in acting like a ship in PT, don't act like a ship while interacting with me unless I give you permission
+‼️ Some notes ig: I don't RP at all, get too worried about what to say. Don't act like a ship with me, unless I say you can. DO NOT mention self-harm around me.
 
 
 ### Currently playing:
