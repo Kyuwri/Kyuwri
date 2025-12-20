@@ -1,14 +1,19 @@
-<img src="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293" alt="https://cloud.refsheet.net/images/images/002/238/615/large/New_Drawing_%288%29.png?1749615293">
+<img src="https://64.media.tumblr.com/690e9359d9ce461f0d8ebaadaec512fb/4610aa9d3a461091-32/s75x75_c1/e6e65e4eb59bf3bfca8825f5e7ea8e6a2fdb0573.gifv"><img src="https://64.media.tumblr.com/16c564bf39996216d4e2a9384ec9aeb7/794e41d1f7a3e4b4-d2/s250x400/badec011c052a940aff1a958d7e5acac1f837081.gifv"><img src="https://64.media.tumblr.com/16c564bf39996216d4e2a9384ec9aeb7/794e41d1f7a3e4b4-d2/s250x400/badec011c052a940aff1a958d7e5acac1f837081.gifv"><img src="https://64.media.tumblr.com/16c564bf39996216d4e2a9384ec9aeb7/794e41d1f7a3e4b4-d2/s250x400/badec011c052a940aff1a958d7e5acac1f837081.gifv"><img src="https://64.media.tumblr.com/690e9359d9ce461f0d8ebaadaec512fb/4610aa9d3a461091-32/s75x75_c1/e6e65e4eb59bf3bfca8825f5e7ea8e6a2fdb0573.gifv">
 
-🍿 Hi! Ty for visting my page! You can call me Kyu, Dirt, Kiwi, or whatever you want. I don't really have much here QuQ Feel free to interact, sit with me, or whatever! ^^ Anytime I'm online, I'll most likely be semi-offtab ethier watching YouTube, drawing, reading, and stalking from the sidelines unknowingly. I apologise if I don't type much I tend to be quite quiet, we just be chilling fr.
+🍓 Hi! I'm Kiwi, Kyu, or whatever you want. Feel free to C+H, if I have it in my name, friends especially! Anytime I'm online I'll most be semi-offtab; playing games, reading, drawing, watching videos, or stalking from the sidelines unknowingly. So, I apologise if I'm quite quiet or if I miss any messages. I like to just chill on here ^^ ‧₊˚✩彡 ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+　　　　　　*　　　　　　　　　　　.
+‼️ Notes: I don't roleplay and don't act like a ship with me!
 
+#### ✶ Currently playing ⋆. : 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true) <img src="https://cdn.custom-cursor.com/db/12047/slime-rencher-cotton-slime-pointer.png" width="75" height="125">
 
-‼️ Some notes ig: I don't RP at all, get too worried about what to say. Don't act like a ship with me, unless I say you can.
-
-
-### Currently playing:
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true)
-
-<img src="https://64.media.tumblr.com/8eefa88953b55f47124d039097b44aa6/98ab3dff3b1c6819-d9/s100x200/b445ef474c2e4bdce3d54e0119355d38bd87b93c.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/593a7923bb233276793138ddcdce26ad/7900d11e998c9a40-24/s100x200/db4b51d43a51af802948e0327621685635925a92.pnj" alt="alternatetext"><img src="https://artwork.neocities.org/stamps/stamp209.gif" alt="alternatetext"><img src="https://64.media.tumblr.com/5c2bc6345ae9b0f221e97c0cebfad158/3160f650e6df82a2-ee/s100x200/da60c69f488f09d03d37128adcec4f730ec88a3a.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/8fa6e27c0f6e34bcecf212beda8a03a6/1b8381f969116a1e-74/s100x200/5e81a668c738b72123f42e163f02b6ecea96bdbf.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/14248bc9ccfa409b8c52e42eb1297c67/6e6c17ed9908dd2f-1e/s100x200/5887821ec7169d406442f7eca91ec1d3bf37238d.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/a7b78974eea293e75b027a91bd3c3a59/01d04d8cd0360afa-98/s100x200/0e2fe31d0f2e3abb18248fee0e5545b286d560ff.gifv" alt="alternatetext">
+<img src="https://64.media.tumblr.com/8eefa88953b55f47124d039097b44aa6/98ab3dff3b1c6819-d9/s100x200/b445ef474c2e4bdce3d54e0119355d38bd87b93c.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/593a7923bb233276793138ddcdce26ad/7900d11e998c9a40-24/s100x200/db4b51d43a51af802948e0327621685635925a92.pnj" alt="alternatetext"><img src="https://artwork.neocities.org/stamps/stamp209.gif" alt="alternatetext"><img src="https://64.media.tumblr.com/5c2bc6345ae9b0f221e97c0cebfad158/3160f650e6df82a2-ee/s100x200/da60c69f488f09d03d37128adcec4f730ec88a3a.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/8fa6e27c0f6e34bcecf212beda8a03a6/1b8381f969116a1e-74/s100x200/5e81a668c738b72123f42e163f02b6ecea96bdbf.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/14248bc9ccfa409b8c52e42eb1297c67/6e6c17ed9908dd2f-1e/s100x200/5887821ec7169d406442f7eca91ec1d3bf37238d.gifv" alt="alternatetext"><img src="https://64.media.tumblr.com/a7b78974eea293e75b027a91bd3c3a59/01d04d8cd0360afa-98/s100x200/0e2fe31d0f2e3abb18248fee0e5545b286d560ff.gifv" alt="alternatetext"> 
 
 ![Badge](https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2FKyuwri&label=Visitors&icon=person-fill&color=%234a00cb&message=&style=plastic&tz=US%2FArizona)
+
+ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+　　　　　　*　　　　　　　　　　　
+
+<img src="https://64.media.tumblr.com/006a7e60d2eebe04de9ce9f426b6d613/cc24fa082771655d-74/s400x600/e7df42eb5a97aa1d55f7e6d1ebd448fa2cca2b63.gifv"><img src="https://64.media.tumblr.com/006a7e60d2eebe04de9ce9f426b6d613/cc24fa082771655d-74/s400x600/e7df42eb5a97aa1d55f7e6d1ebd448fa2cca2b63.gifv">
