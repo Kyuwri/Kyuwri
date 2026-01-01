@@ -3,7 +3,7 @@
 🍓 Hi! I'm Kiwi, Kyu, or whatever you want. Feel free to C+H, if I have it in my name, friends especially! Anytime I'm online I'll most be semi-offtab; playing games, reading, drawing, watching videos, or stalking from the sidelines unknowingly. So, I apologise if I'm quite quiet or if I miss any messages. I like to just chill on here ^^ ‧₊˚✩彡 ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　.
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 　　　　　　*　　　　　　　　　　　.
-‼️ Notes: I don't roleplay and don't act like a ship with me!
+‼️ Notes: I don't roleplay and don't act like a ship with me! I'f If I'm not active for a while on Pony Town just assume that I'm on Roblox or busy
 
 ### ✶ Currently playing ⋆. : 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=azsf26ttyxkalss13gafqesh2&redirect=true) <img src="https://cdn.custom-cursor.com/db/12047/slime-rencher-cotton-slime-pointer.png" width="75" height="125">
