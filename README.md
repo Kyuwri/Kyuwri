@@ -11,9 +11,3 @@
 <img src="https://64.media.tumblr.com/8eefa88953b55f47124d039097b44aa6/98ab3dff3b1c6819-d9/s100x200/b445ef474c2e4bdce3d54e0119355d38bd87b93c.gifv"><img src="https://artwork.neocities.org/stamps/mine/blossom.png"><img src="https://64.media.tumblr.com/a7b78974eea293e75b027a91bd3c3a59/01d04d8cd0360afa-98/s100x200/0e2fe31d0f2e3abb18248fee0e5545b286d560ff.gifv"><img src="https://64.media.tumblr.com/e5ec55c9aec46f9efa24376992f3c187/d40a35092cacca7b-43/s100x200/2644fe674e4887fe3799f2e33cee26ae9b922797.gifv"><img src="https://64.media.tumblr.com/f6f936cd16d9b73c94c3aa2ec8bc62a0/0f35ff29d9ee524a-02/s100x200/9e59fc84b1aa3ab7a403c2a04eeace0705a77629.gifv"><img src="https://64.media.tumblr.com/ff0681afa8f265883637e34536767c49/d516783ab48766e4-51/s100x200/a22301301dd6c12b7b67a865df5a50f17e91f7a2.gifv"><img src="https://64.media.tumblr.com/fd9889ee918a1cf4a9ed238761f50b4d/abb353c3a2fae4c6-2d/s100x200/a418d6d07ae9da5e859d36ba1d045f85d4dedc18.gifv"><img src="https://64.media.tumblr.com/5c2bc6345ae9b0f221e97c0cebfad158/3160f650e6df82a2-ee/s100x200/da60c69f488f09d03d37128adcec4f730ec88a3a.gifv"> 
 
 ![Badge](https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2FKyuwri&label=Visitors&icon=person-fill&color=%234a00cb&message=&style=plastic&tz=US%2FArizona)
-
-ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　.
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-　　　　　　*　　　　　　　　　　　
-
-<img src="https://64.media.tumblr.com/006a7e60d2eebe04de9ce9f426b6d613/cc24fa082771655d-74/s400x600/e7df42eb5a97aa1d55f7e6d1ebd448fa2cca2b63.gifv"><img src="https://64.media.tumblr.com/006a7e60d2eebe04de9ce9f426b6d613/cc24fa082771655d-74/s400x600/e7df42eb5a97aa1d55f7e6d1ebd448fa2cca2b63.gifv">
